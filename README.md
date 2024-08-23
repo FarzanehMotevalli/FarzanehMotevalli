@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @FarzanehMotevalli
+👋 Hi, I’m @FarzanehMotevalli
 - 🌱 I’m currently learning ...
 
 
